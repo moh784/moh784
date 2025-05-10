@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @moh784
-- 👀 I’m interested in programmin
+- 👀 I’m interested in programming
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: water is good
 
